@@ -1,5 +1,5 @@
 # 💫 About Me:
-Student of Concordia University
+Cybersecurity Student
 
 
 ## 🌐 Socials:
